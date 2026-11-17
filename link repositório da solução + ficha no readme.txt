@@ -1,0 +1,1 @@
+https://github.com/MarcioAlexandreWork/GS-2-2026-Zeladoria/blob/main/README.md
